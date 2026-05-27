@@ -1,4 +1,5 @@
 ## Hi there 👋
+<img width="1584" height="396" alt="anish_linkedin_banner" src="https://github.com/user-attachments/assets/e385e2ab-7e85-445c-b1f6-ae790ad07e11" />
 
 
 
